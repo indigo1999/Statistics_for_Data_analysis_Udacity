@@ -1,1 +1,1 @@
-![Certificate_Statistics_for_Data_analysis](https://github.com/user-attachments/assets/d2465aa3-fc1a-44cd-a216-139cc41842bc)
+[Learn the Latest Tech Skills; Advance Your Career _ Udacity.pdf](https://github.com/user-attachments/files/21813661/Learn.the.Latest.Tech.Skills.Advance.Your.Career._.Udacity.pdf)
